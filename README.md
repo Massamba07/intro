@@ -22,7 +22,7 @@
 </div>
  </p>
 
-📫Comment me joindre ? Je réponds par mail : alimousantou@gmail.com
+📫Comment me joindre ? Je réponds par mail : m.massamba.gueye@gmail.com
 
 <!-- Socials --> 
 
